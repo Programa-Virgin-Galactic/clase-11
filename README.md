@@ -23,4 +23,10 @@ Pero la NASA lo reconoce porque considera que la medida para saber si un vuelo e
 - Empresario británico dueño de Virgin
 - Creó Virgin en 1970
 - - - - -
-Bibliografía:
+**Bibliografía:**
+- https://www.revfine.com/es/galactica-virgen/ 
+- https://es.wikipedia.org/wiki/Richard_Branson
+- https://es.wikipedia.org/wiki/Virgin_Group
+- https://es.wikipedia.org/wiki/Virgin_Galactic
+
+
